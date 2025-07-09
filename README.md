@@ -6,7 +6,7 @@
 
 <B>ZdsLogic Technologies</B>
 
-The Social Network for Technology minded individuals (and friends).
+The Social Network for Change.
 
 Connect, Share, Learn, Explore
 
